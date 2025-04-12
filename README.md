@@ -1,3 +1,3 @@
-Biggest Project: ii Stupid Menu With More
+Biggest Project: ii Stupid Menu With More.
 no life lol
-basically tired all of the time
+basically tired all of the time.
