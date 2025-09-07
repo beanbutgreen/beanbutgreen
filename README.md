@@ -1,3 +1,1 @@
-Biggest Project: ii Stupid Menu With More.
-no life lol
-basically tired all of the time.
+Stuff in my account will most likely be about Friday Night Funkin' i love forking repos
